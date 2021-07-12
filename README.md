@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @C-E5
+- 👀 I’m interested in java, android developing, and background development
+- 🌱 I’m currently learning java
+- 📫 How to reach me: I am a students, and I currently not a sophistcated developer. I think I can't do any thing more than nothing. However, you can send me email to onr2d7cq8@relay.firefox.com
